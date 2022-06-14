@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Prinshu2125
-- 👀 I’m interested in Software Engineer(1+YEO) Roles
+- 👀 I’m interested in Software Engineer(1+YOE) Roles
 - 🌱 I’m currently working in BlackHawk Networks as Associate Software Engineer
 - 📫 How to reach me : linkedin - https://www.linkedin.com/in/prinshu-goswami-934aa618b/
 
